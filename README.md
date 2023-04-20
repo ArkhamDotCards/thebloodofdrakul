@@ -1,1 +1,1 @@
-# thebloodofdrakul
+# Arkham Horror LCG: The Blood of Drakul
